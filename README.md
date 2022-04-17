@@ -1,0 +1,2 @@
+# tecnico
+minhas atividades
